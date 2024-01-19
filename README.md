@@ -7,7 +7,7 @@ Beyond the world of data and language processing, I have a deep love for footbal
 
 
 ### Connect with Me
-- **LinkedIn:** [yavuuzsameet](linkedin.com/yavuuzsameet)
+- **LinkedIn:** [yavuuzsameet](https://www.linkedin.com/in/yavuuzsameet/)
 - **Email:** [yavuzsamet.topcuoglu@mail.polimi.it](mailto:yavuzsamet.topcuoglu@mail.polimi.it)
 
 ---
